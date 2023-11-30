@@ -1,0 +1,1 @@
+# SyntheseInfo_TP1_HAZAN_CHARUEL
